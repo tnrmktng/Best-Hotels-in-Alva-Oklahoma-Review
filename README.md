@@ -15,18 +15,18 @@ Whether visiting for rodeo events, college visits, or sand dune adventures, OK W
 
 📞 Call: (580) 609-6291🌐 Visit: www.okwelcomehome.com
 
-Read our guest highlights on LinkedIn: Read Our LinkedIn Post
+Read our guest highlights and travel updates on LinkedIn: https://tedspath.com/alvaokhotels
 
 Connect and Learn More:
 
-Website
+Website: https://www.okwelcomehome.com
 
-LinkedIn
+LinkedIn: https://www.linkedin.com/company/ok-welcome-home-hotel/
 
-TripAdvisor
+TripAdvisor: https://www.tripadvisor.com/Hotel_Review-g29967-d27162748-Reviews-Ok_Welcome_Home_Hotel-Alva_Oklahoma.html
 
-Google Maps
+Google Maps: https://www.google.com/maps/place/OK+Welcome+Home+Hotel/@36.7981791,-98.657948,15z
 
-Booking.com
+Booking.com: https://www.booking.com/hotel/us/ok-welcome-home.html
 
 If you’re looking for Alva Oklahoma hotels that combine value, comfort, and location, we invite you to discover OK Welcome Home Hotel for your next stay.
